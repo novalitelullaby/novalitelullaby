@@ -1,4 +1,4 @@
-## Hi there 👋
+## dont !
 
 <!--
 **5pamton/5pamton** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+
+
+![image alt](https://github.com/5pamton/parttwo/blob/f4662e199d2827d234933e5ef5ce110d8902457f/Untitled569_20251213205610.png)
