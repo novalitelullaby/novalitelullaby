@@ -18,11 +18,8 @@ Here are some ideas to get you started:
 <div align="center">
   𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟
 
-  son im crine. dont think of me as
+  "oh  my  precious  demon  darlings . ."
 
-  a weirdo. IM NOT!! I just like trolling
-
-  a lot
 </div>
 
 ![image alt](https://github.com/defernulls/parttwo/blob/bffe58e3d8462cd1a3d3317fdffb96796f936f7d/Untitled570_20251216140906.png)
